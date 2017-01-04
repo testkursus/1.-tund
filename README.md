@@ -1,3 +1,5 @@
 # 1.-tund
 
-romil oli siin?
+romil oli siin?!
+
+#parandas jaagup
